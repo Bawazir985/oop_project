@@ -1,0 +1,2 @@
+# OOPS_Project
+V stepped into the crowd, taking in live performances at Vogue World: Hollywood. Known for his own standout fashion moments, he kept it effortlessly stylish in a look worthy of the runway.
